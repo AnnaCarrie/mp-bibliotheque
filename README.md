@@ -1,4 +1,4 @@
-Les membres du groupe sont: Ariane Chabelle Nouatchi
-                            Fatou Doukouré
-                            Anna Carrie Bathily
+Les membres du groupe sont: Ariane Chabelle Nouatchi, 
+                            Fatou Doukouré, 
+                            Anna Carrie Bathily, 
                             Ibrahima Sène
